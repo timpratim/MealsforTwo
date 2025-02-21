@@ -6,7 +6,7 @@ Ingredients
 
 400g lamb shoulder, cut into chunks
 
-50–70g lardons
+100g lardons
 
 100g mushrooms, quartered (pre-cooked and reserved)
 
