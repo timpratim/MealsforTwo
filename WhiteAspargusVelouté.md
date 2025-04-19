@@ -1,57 +1,88 @@
-White Asparagus Velouté (for 2, rich and flavorful)
+White Asparagus Velouté (for 2) – with Homemade Asparagus Stock
 
 Ingredients:
 
 500g white asparagus, peeled and trimmed
 
+Peels and woody ends (for stock)
+
 1 small onion or shallot, chopped
 
-1 garlic clove (optional), chopped
+1 garlic clove (optional)
 
 1 tbsp butter or olive oil
 
-~300 ml water or broth (start with less, adjust later)
+300 ml homemade asparagus stock (see below)
 
-2–3 tbsp cream or crème fraîche (optional, to finish)
+2–3 tbsp cream or crème fraîche (optional)
 
-A pinch of chili flakes
+Chili flakes, to taste
 
-Salt and pepper to taste
+Salt and pepper
 
 
-Optional garnish:
+Garnish:
 
 Steamed asparagus tips
 
-Extra cream or olive oil
+A drizzle of cream or olive oil
 
-Chopped herbs or croutons
+Croutons or fresh herbs (optional)
 
 
 
 ---
 
-Instructions:
+Step 1: Make the Stock
 
-1. Prepare asparagus
-Peel the asparagus well and trim woody ends. Steam until very tender – about 20–25 minutes depending on thickness. Set aside the tips for garnish.
+In a small pot:
 
+Add the asparagus peels + ends, a bit of chopped onion, a pinch of salt, and 400–500 ml water.
 
-2. Sauté aromatics
-In a pot, melt butter (or heat oil). Sauté onion and garlic gently until soft and fragrant.
+Simmer gently for 20–30 minutes.
 
-
-3. Combine & simmer
-Add chopped, steamed asparagus (minus the tips) and a pinch of chili flakes. Pour in about 300 ml water or broth—just enough to barely cover the veg. Simmer for 5–10 minutes.
+Strain and keep ~300 ml for the velouté. Reduce further if needed.
 
 
-4. Blend
-Blend everything until smooth. If too thick, add a splash of water. If too thin, reduce a bit on the stove.
+
+---
+
+Step 2: Steam the Asparagus
+
+Steam the peeled asparagus stalks until very soft (20–25 minutes).
+
+Reserve the tips for garnish. Chop the rest for the soup.
 
 
-5. Finish
-Stir in cream or crème fraîche if using. Adjust salt and pepper.
+
+---
+
+Step 3: Cook the Soup Base
+
+In a pan, melt butter or heat oil. Sauté the chopped onion and garlic until soft.
+
+Add chopped asparagus stalks and chili flakes.
+
+Pour in 300 ml of your asparagus stock, simmer 5–10 minutes.
 
 
-6. Serve
-Pour into bowls, top with reserved tips, a drizzle of cream or olive oil, and more chili flakes if you like it spicy.
+
+---
+
+Step 4: Blend & Finish
+
+Blend the mixture until smooth.
+
+Stir in cream or crème fraîche (optional).
+
+Adjust consistency by reducing or adding a splash of stock. Season to taste.
+
+
+
+---
+
+Step 5: Serve
+
+Pour into bowls.
+
+Garnish with the steamed tips, a swirl of cream or oil, and any crunchy toppings you like.
