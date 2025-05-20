@@ -17,7 +17,7 @@ Marinade:
 
 Juice of 1/2 lime (about 1 tbsp)
 
-Pinch of salt
+Pinch of salt and pepper
 
 
 1.5 tbsp sesame oil
