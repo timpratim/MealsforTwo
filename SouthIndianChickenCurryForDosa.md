@@ -1,6 +1,6 @@
 Easy South Indian Chicken Curry for Dosa
 
-(360g chicken, marinated with turmeric, chili, lime juice; sesame oil; cumin & pepper powder; desiccated coconut; mustard seeds)
+(360g chicken, marinated with turmeric, chili, lime juice; sesame oil; cumin & pepper powder; desiccated coconut; mustard seeds). I use Kipdijfilet (Boneless Chicken Thighs)
 
 
 ---
