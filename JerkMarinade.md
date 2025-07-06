@@ -13,7 +13,7 @@ Makes enough for ~2 to 2.5 kg chicken
 
 6 garlic cloves
 
-4 Indian green chilies – charred, seeds in
+4 Indian green chilies – charred, seeds in (or 1 habanero)
 
 4–6 sprigs fresh thyme – leaves only (~2 tsp)
 
