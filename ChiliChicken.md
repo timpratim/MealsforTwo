@@ -5,6 +5,9 @@ Cook time: 15 min
 
 ---
 
+<img width="1536" height="1024" alt="image" src="https://github.com/user-attachments/assets/b3c04a98-f6f9-4d30-a6d1-5a290213a4ba" />
+
+
 ### 🧂 Ingredients
 
 **For the chicken & marinade**
