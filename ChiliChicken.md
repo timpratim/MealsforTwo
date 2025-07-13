@@ -1,114 +1,88 @@
-# 🌶️ Indo-Chinese Chili Chicken (Dry Style)
-
+**🌶️ Indo-Chinese Chili Chicken (Air-Fried, Dry Style)**
 Serves: 2–3
 Prep time: 20 min
 Cook time: 15 min
 
+---
+
+### 🧂 Ingredients
+
+**For the chicken & marinade**
+
+* 300–400 g boneless chicken (thigh or breast), cut into bite-size pieces
+* 1 tbsp soy sauce
+* 1 tbsp rice vinegar
+* 1 tsp sriracha
+* 1 tsp chili powder
+* ½ tsp black pepper
+* 1 tsp ginger-garlic paste
+* 2 tbsp cornflour
+* 1 tbsp all-purpose flour
+* 1 egg white (or 1 tbsp water)
+* Salt, to taste
+
+**For the sauce**
+
+* 1 tbsp oil
+* 1 tbsp chopped garlic
+* 1 tbsp chopped ginger
+* 2 green chilies, slit (optional)
+* 1 small onion, cut into petals
+* 1 small green bell pepper, cut into chunks
+* 1.5 tbsp soy sauce
+* 1 tbsp sriracha (or Indian-Chinese chili sauce)
+* 1 tsp rice vinegar
+* 1 tsp sugar
+* ½ tsp crushed black pepper
+* 2 tbsp water (for thin sauce)
+* Spring onions, chopped (whites + greens)
+* 1 tsp sesame oil (optional)
 
 ---
 
-🧂 Ingredients
+### 🔪 Instructions
 
-For the chicken:
+#### 1. Marinate the chicken
 
-300–400g boneless chicken thighs or breast, cut into bite-size pieces
+1. Place chicken in a bowl.
+2. Add soy sauce, rice vinegar, sriracha, chili powder, pepper, and ginger-garlic paste.
+3. Sprinkle cornflour, flour, and salt.
+4. Add egg white or water.
+5. Mix well so each piece gets coated.
+6. Cover and rest for 15 minutes.
 
-1 tbsp soy sauce (dark or regular)
+#### 2. Air-fry the chicken
 
-1 tsp vinegar
+1. Preheat air fryer to 200 °C (400 °F).
+2. Lightly spray the basket with oil.
+3. Arrange chicken in one layer.
+4. Air-fry for 12–14 minutes.
+5. Shake or turn halfway.
+6. Cook until edges turn golden and crisp.
+7. Transfer to a plate.
 
-½ tsp black pepper
+#### 3. Make the sauce
 
-1 tsp ginger-garlic paste
+1. Heat oil in a wok or pan over high heat.
+2. Add garlic and ginger. Stir for 20 seconds.
+3. Add green chilies, onion, and bell pepper.
+4. Stir-fry for 2–3 minutes. Keep vegetables crisp.
+5. Pour in soy sauce, sriracha, rice vinegar, sugar, and black pepper.
+6. Add 2 tbsp water. Stir to blend.
+7. Cook for 1 minute. Taste and adjust seasoning.
 
-2 tbsp cornflour (cornstarch)
+#### 4. Combine & serve
 
-1 tbsp all-purpose flour
-
-1 egg white or 1 tbsp water (optional – for better coating)
-
-Salt to taste
-
-Oil for shallow or deep frying
-
-
-For the stir-fry sauce:
-
-1 tbsp oil (use the same oil as frying for flavor)
-
-1 tbsp chopped garlic
-
-1 tbsp chopped ginger
-
-2–3 green chilies, slit
-
-1 small onion, cut into petals
-
-1 small green bell pepper, cut into chunks
-
-1.5 tbsp soy sauce
-
-1 tbsp chili sauce (like Sriracha or Indian-Chinese chili sauce)
-
-1 tsp vinegar (white or rice vinegar)
-
-1 tsp sugar
-
-½ tsp crushed black pepper
-
-Spring onions (greens + whites) – chopped
-
-Optional: 1 tsp sesame oil (for finishing)
-
-
+1. Add air-fried chicken to the sauce.
+2. Toss on high heat for 30 seconds.
+3. Stir in spring onions.
+4. Drizzle sesame oil if you like.
+5. Serve hot with steamed rice or noodles.
 
 ---
 
-🔪 Instructions
+**🔥 Tips**
 
-Step 1: Marinate & Fry the Chicken
-
-1. Mix chicken with soy sauce, vinegar, pepper, ginger-garlic paste, cornflour, flour, and egg white or water. Let it marinate for 10–15 min.
-
-
-2. Heat oil and fry the chicken until golden and crispy. Set aside on a paper towel.
-
-
-
-Step 2: Prepare the Sauce Base
-
-1. In a wok or large pan, heat 1 tbsp oil. Add garlic, ginger, and green chilies. Sauté for 30 seconds.
-
-
-2. Add onion petals and bell pepper. Stir-fry on high heat for 2–3 minutes (they should stay crisp).
-
-
-3. Add soy sauce, chili sauce, vinegar, sugar, black pepper. Mix well.
-
-
-4. Taste and adjust salt if needed (soy sauce is salty).
-
-
-
-Step 3: Combine & Finish
-
-1. Add the fried chicken to the pan. Toss well on high heat to coat with sauce.
-
-
-2. Add chopped spring onion greens and optionally a few drops of sesame oil.
-
-
-3. Serve hot, garnished with extra spring onions or sliced chilies.
-
-
-
-
----
-
-🔥 Tips
-
-Use thigh meat for juicier chicken.
-
-Add a slurry of ½ tsp cornflour + 2 tbsp water at the end if you want a slightly saucy (semi-gravy) version.
-
-For extra heat, add crushed dried chilies or Schezwan sauce.
+* Use thigh meat for moist chicken.
+* For extra kick, add a pinch of crushed dried chilies.
+* If you like a slight glaze, mix ½ tsp cornflour with 2 tbsp water and stir into the sauce before adding chicken.
