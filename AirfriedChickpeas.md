@@ -103,5 +103,3 @@ Spices taste bitter/burnt: add spices at the end or after cooking.
 Storage
 
 Best eaten same day. If they soften, re-air-fry 2–4 minutes at 190–200°C.
-
-If you tell me your air fryer model (basket vs oven-style) and whether you want spicy / savory / sweet, I’ll tune the time and a spice mix to match.
